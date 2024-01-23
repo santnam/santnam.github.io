@@ -1,3 +1,3 @@
-# Hi, I am Santnam Bakshi
+# The Energy Zealot
 
-## I am a master's student at the University of Pennsylvania
+## Hi, I am a master's student at the University of Pennsylvania
